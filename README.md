@@ -1,0 +1,1 @@
+241080200018-Al Fahrezy Pradana Heri Saputra-2A1 PRAKTIKUM ALTA
